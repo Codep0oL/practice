@@ -1,1 +1,1 @@
-these are the code i practiced
+these are the codes i practiced
